@@ -19,7 +19,7 @@ $\color{#909090}{\textsf{feel free to int, I might come off harsh but I mean wel
       </th>
   </table>
 <img src="https://gabestash.neocities.org/dividers/monochrome/mono2.gif"  /> 
-<p align="left"> <img src="https://64.media.tumblr.com/a83bfc006423d72f9f8aaf5d1cefef88/f8a3a75d20dbc3f3-ee/s100x200/aad0afec53c4a718fb7070a449d2df4a0f710bc4.gifv"  /> Look at these how cool <p align="center"> <br>
+<p align="left"> <img src="https://64.media.tumblr.com/a83bfc006423d72f9f8aaf5d1cefef88/f8a3a75d20dbc3f3-ee/s100x200/aad0afec53c4a718fb7070a449d2df4a0f710bc4.gifv"  /> $\color{#dbe1f3}{\textsf{Look at these how cool}}$  <p align="center"> <br>
 
 <img src="https://64.media.tumblr.com/01b589b8d5669f372bcca8883800d35d/473928ea48888009-8b/s100x200/e5878bd69010c6acd51da30b27ad473da0ae3f60.pnj" />
 <img src="https://external-media.spacehey.net/media/s43H3AWRs1bpxe3fCYgJNKxFA4tr6HAanuNy8-SfpQlk=/https://64.media.tumblr.com/8593a0959c4225ca35d8cc5cde040abf/d4d596df6bde767e-ab/s100x200/1cade629de8a1e1d4800f4408f729a5d1a7d832c.pnj" />
