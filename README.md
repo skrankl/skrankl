@@ -4,11 +4,11 @@
     <tr align="center"></tr>
       <th>
            <br>  
-          <img src="https://64.media.tumblr.com/983ab3efc09feac0f67c6f66cb715421/38944615c91dc390-e3/s400x600/318c0c9f997710c8e9ad9a23da903d15946ef1f1.pnj" width="150" alt="doodle">
+          <img src="https://64.media.tumblr.com/983ab3efc09feac0f67c6f66cb715421/38944615c91dc390-e3/s400x600/318c0c9f997710c8e9ad9a23da903d15946ef1f1.pnj" width="150" title="It is imperative for our existence" alt="doodle">
 <br>
                    <br>  
 
-<img src="https://64.media.tumblr.com/d5285e15900a1616ba51c26bdf1c6497/8cfd1f618a490d71-06/s75x75_c1/2579d5a4d7ace33484c166b183e54a6bf7a77751.gifv" width="30" alt="flower">
+<img src="https://64.media.tumblr.com/d5285e15900a1616ba51c26bdf1c6497/8cfd1f618a490d71-06/s75x75_c1/2579d5a4d7ace33484c166b183e54a6bf7a77751.gifv" width="30" alt="scribble">
              <br>
         $\color{#595959}{\textsf{Meeks or}}$ $\color{#dbe1f3}{\textsf{Morgan.}}$<br>
 $\color{#dbe1f3}{\textsf{ 17, aroace ─}}$ $\color{#595959}{\textsf{(It/they) librafem }}$ <br>
@@ -18,8 +18,9 @@ $\color{#909090}{\textsf{feel free to int, I might come off harsh but I mean wel
         <br>
       </th>
   </table>
-<img src="https://gabestash.neocities.org/dividers/monochrome/mono2.gif"  /> 
-<p align="left"> <img src="https://64.media.tumblr.com/a83bfc006423d72f9f8aaf5d1cefef88/f8a3a75d20dbc3f3-ee/s100x200/aad0afec53c4a718fb7070a449d2df4a0f710bc4.gifv"  /> $\color{#dbe1f3}{\textsf{Look at these how cool}}$  <p align="center"> <br>
+<img src="https://gabestash.neocities.org/dividers/monochrome/mono2.gif" title="for you to get in this box"  />
+<p align="center">
+   <br>
 
 <img src="https://64.media.tumblr.com/01b589b8d5669f372bcca8883800d35d/473928ea48888009-8b/s100x200/e5878bd69010c6acd51da30b27ad473da0ae3f60.pnj" />
 <img src="https://external-media.spacehey.net/media/s43H3AWRs1bpxe3fCYgJNKxFA4tr6HAanuNy8-SfpQlk=/https://64.media.tumblr.com/8593a0959c4225ca35d8cc5cde040abf/d4d596df6bde767e-ab/s100x200/1cade629de8a1e1d4800f4408f729a5d1a7d832c.pnj" />
@@ -30,4 +31,5 @@ $\color{#909090}{\textsf{feel free to int, I might come off harsh but I mean wel
 <img src="https://lagrimas-negras.neocities.org/creepypasta5.webp" />
 <img src="https://y2k.neocities.org/stamps2/_game_over__by_redkuu-da81jk3.png" /> <br>
 <img src="https://64.media.tumblr.com/459d70e9fc40bf02298c8d80734cac4c/3c7512c789785a26-dc/s250x400/2d2eda2a30937036a02719872441887b9441a01c.webp" /> <br>
-<img src="https://64.media.tumblr.com/8bfdf97289d86b236f2a4c9f86ca2c2e/tumblr_inline_rbdaqwqNx31vefsve_500.gif"  />
+<img src="https://64.media.tumblr.com/5af4eb4882b18182b39bf38f022de077/2408ed4c36a938c0-94/s75x75_c1/af94964d4febd56b68971f60cf2cef8f76fecafa.pnj"  />
+<p align="left"> <img src="https://x02.me/i/7TARUW.png" width="350"  /> 
