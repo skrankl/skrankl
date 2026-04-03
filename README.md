@@ -18,3 +18,16 @@ $\color{#909090}{\textsf{feel free to int, I might come off harsh but I mean wel
         <br>
       </th>
   </table>
+<img src="https://gabestash.neocities.org/dividers/monochrome/mono2.gif"  /> 
+<p align="left"> <img src="https://64.media.tumblr.com/a83bfc006423d72f9f8aaf5d1cefef88/f8a3a75d20dbc3f3-ee/s100x200/aad0afec53c4a718fb7070a449d2df4a0f710bc4.gifv"  /> Look at these how cool <p align="center"> <br>
+
+<img src="https://64.media.tumblr.com/01b589b8d5669f372bcca8883800d35d/473928ea48888009-8b/s100x200/e5878bd69010c6acd51da30b27ad473da0ae3f60.pnj" />
+<img src="https://external-media.spacehey.net/media/s43H3AWRs1bpxe3fCYgJNKxFA4tr6HAanuNy8-SfpQlk=/https://64.media.tumblr.com/8593a0959c4225ca35d8cc5cde040abf/d4d596df6bde767e-ab/s100x200/1cade629de8a1e1d4800f4408f729a5d1a7d832c.pnj" />
+<img src="https://64.media.tumblr.com/d553c005eddc15a2724b961346d39a37/ff359c82fda66959-6e/s100x200/7c92523306145b250b95f2c9fd8fec71da01cd74.pnj" />
+<img src="https://64.media.tumblr.com/ade1e77863166bac3f1c7ffc14d4c82f/tumblr_inline_p54tmrR9uD1vtcax5_500.gif" />
+<img src="https://64.media.tumblr.com/9dcf783bdd43d3feff676441631b5b07/6f072ea04e7b6c72-a7/s100x200/828096e077d3289e49c5292a3016851cc8399839.jpg" /> <br> 
+<img src="https://gifcity.carrd.co/assets/images/gallery59/6588a2ab.gif?v=e3c0bc0f" />
+<img src="https://lagrimas-negras.neocities.org/creepypasta5.webp" />
+<img src="https://y2k.neocities.org/stamps2/_game_over__by_redkuu-da81jk3.png" /> <br>
+<img src="https://64.media.tumblr.com/459d70e9fc40bf02298c8d80734cac4c/3c7512c789785a26-dc/s250x400/2d2eda2a30937036a02719872441887b9441a01c.webp" /> <br>
+<img src="https://64.media.tumblr.com/8bfdf97289d86b236f2a4c9f86ca2c2e/tumblr_inline_rbdaqwqNx31vefsve_500.gif"  />
