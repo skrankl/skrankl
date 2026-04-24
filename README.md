@@ -76,3 +76,5 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
 </details> 
   
 ![](https://komarev.com/ghpvc/?username=skrankl&color=595959&label=Mutations) 
+<br>
+<img src=https://64.media.tumblr.com/ec49f469391263f6e0ab6e3d3d0c738a/aae5ae3d5b3afbd0-f2/s1280x1920/d2afdcff315d9b2e9d0c46b92ea6308dbc5a4b54.jpg />
