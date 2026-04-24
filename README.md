@@ -18,6 +18,8 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
         <br>
       </th>
   </table>
+  <img src=https://64.media.tumblr.com/99a5dd90a24da1f3635d6c0c6e872a4b/07b0db400b290d56-ce/s250x400/0bc6d102a88cea315a03d8bd2492789540a80f00.gifv />
+  <br>
 <img src="https://gabestash.neocities.org/dividers/monochrome/mono2.gif" />
 <p align="center">
    <br>
@@ -50,7 +52,7 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
 <p align="center">
 
 <details>
-  <summary><ins>♡</ins></summary> 
+  <summary><ins>‹𝟹</ins></summary> 
   <div align="center">
     <p>Mewgenics</p>
     <p>Timefcuk</p>
