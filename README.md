@@ -39,11 +39,12 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
   <div align="center">
     <p>Basic dni</p>
     <p>Centrists</p>
-    <p>-15 yo</p>
-    <p>Non nd who say retard</p>
+    <p>-14 yo</p>
+    <p>Non nd & say retard</p>
     <p>Neopronoun mockers</p>
-    <p>Zionists</p>
-    <p>Terfs</p>
+    <p>Zionist</p>
+    <p>Terf</p>
+    <p>Proship</p>
     <p>Any friggin' losers!</p>
   </div>
 </details> 
