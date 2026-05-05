@@ -38,7 +38,6 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
   <summary><ins>Dni</ins></summary> 
   <div align="center">
     <p>Basic dni</p>
-    <p>Don't withhold your own morals<p>
     <p>Centrists</p>
     <p>-14 yo</p>
     <p>Non nd & say retard</p>
@@ -46,6 +45,7 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
     <p>Zionist</p>
     <p>Terf</p>
     <p>Proship</p>
+    <p>Don't withhold your own morals<p>
     <p>Anyone annoying, be normal talking to me</p>
   </div>
 </details> 
