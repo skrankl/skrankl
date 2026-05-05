@@ -68,9 +68,10 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
     <p>Fear & hunger</p>
     </p>Moshi Monsters</p>
     <p>Neko Atsume</p>
+    </p>Overwatch</p>
+    <p>QSMP 1-2<p>
     </p>Soul eater</p>
     </p>Warrior Cats</p>
-    </p>Overwatch</p>
     </p>Entomology</p>
     </p>lolita , fashion</p>
     </p>Body horror films</p>
@@ -80,3 +81,11 @@ $\color{#909090}{\textsf{feel  free  to  int,  I  might  come  off  harsh   but 
 ![](https://komarev.com/ghpvc/?username=skrankl&color=595959&label=Mutations) 
 <br>
 <img src=https://64.media.tumblr.com/ec49f469391263f6e0ab6e3d3d0c738a/aae5ae3d5b3afbd0-f2/s1280x1920/d2afdcff315d9b2e9d0c46b92ea6308dbc5a4b54.jpg />
+<details>
+  <summary><ins>BYI!</ins></summary> 
+  <div align="center">
+    <p>I have a psychotic disorder that affects my empathy aswell as general mood, </p>
+    </p>It can make me either quick to anger or cause manic highs where i can become very talkative and have little to no filter</p>
+    </p>if I seem unusually gamey or strange when speaking to you feel free to tell me to stop, id rather be told to quit politely then make anyone or myself uncomfortable.</p>
+  </div>
+</details> 
